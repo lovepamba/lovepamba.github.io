@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Why I'm Moving"
+title:  "I'm Moving"
 date:   2019-08-31 01:15:24 -0500
 categories: personal
 ---
