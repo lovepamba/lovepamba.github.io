@@ -24,7 +24,7 @@ description: >- # this means to ignore newlines until "baseurl:"
   This site promotes personal development. The focus is to transcend your
   current conditions and get from better to best. Once you are settled in the 
   stage where you know how to survive, it is time to switch gears and learn how
-  to THRIVE.
+  to THRIVE. That is what we pursue here.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: lovepamba_
