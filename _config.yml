@@ -18,13 +18,13 @@
 # You can create any custom variable you would like, and they will be accessible
 # in the templates via {{ site.myvariable }}.
 
-title:  
+title: Love, Pamba  
 email: 
 description: >- # this means to ignore newlines until "baseurl:"
   This space promotes personal development. The focus is to transcend your
   current conditions and get from bad to better. Next, it is time to switch gears 
   and learn how to become your best and THRIVE. Women currently combating 
-  depression, PMDD and anxiety are welcome to share in this journey.
+  depression, PMDD and anxiety are welcome to share in my journey.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: 
