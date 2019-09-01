@@ -21,11 +21,10 @@
 title:  
 email: 
 description: >- # this means to ignore newlines until "baseurl:"
-  This site promotes personal development. The focus is to transcend your
-  current conditions and get from bad to better. Then once you are settled in the 
-  stage where you know how to survive, it is time to switch gears and learn how
-  to be your best and THRIVE. That is what we pursue here. Women currently combating 
-  depression, PMDD and anxiety are welcome to share in these words.
+  This space promotes personal development. The focus is to transcend your
+  current conditions and get from bad to better. Next, it is time to switch gears 
+  and learn how to become your best and THRIVE. Women currently combating 
+  depression, PMDD and anxiety are welcome to share in this journey.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: 
