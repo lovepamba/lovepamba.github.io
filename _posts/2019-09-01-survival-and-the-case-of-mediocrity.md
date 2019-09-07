@@ -2,7 +2,7 @@
 layout: post
 title:  "Survival and the case of mediocrity"
 date:   2019-09-01 04:59:18 -0500
-categories: personaldevelopment
+categories: development
 ---
 It is so easy to nestle into a comfy couch of mediocrity.
 
