@@ -9,7 +9,7 @@ Most of us are just surviving - and barely. My goal is to transition to thriving
 ### Why thrive
 You only life once.
 Take calculated risks.
-There is no reason to live constant in fear - face it.
+There is no reason to live in constant fear - face it.
 Use fear as motivation.
 
 ### What is thriving?
