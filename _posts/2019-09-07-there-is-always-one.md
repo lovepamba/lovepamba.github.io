@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "There is Always One"
+title:  "There is always one"
 date:   2019-09-07 08:05:56 -0500
 categories: corporate
 ---
@@ -8,7 +8,7 @@ There is always at least one person in a corporate setting who takes it upon his
 
 My 'punk ass bitch' is the COO of my division. There is something extremely mentally unstable about a person who will go out of their way and waste time to avoid doing a requested task. It's a sad road for a managment "leader" who does not know how to lead without bias. In an effort to come across as a busy, authoritarian figure, this guy makes himself look stupid.
 
-Instead of playing immature games, this fool needs to go balls to the wall and hit the floor running to smooth out operations. But he's a *dumbass fool*.
+Instead of playing immature games, this fool needs to go balls to the wall and hit the ground running to smooth out operations. But he's a *dumbass fool*.
 
 *Fool me once, shame on you. Fool me twice, shame on me. Fool me a third time, shame on the both of us*
 
