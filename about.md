@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 #### The Bad Season
-I know firsthand what is feels like to be living a life but wishing for death. I recently emerged from a decade plus of life where I was progressively not able to realize my true potential because I was unknowingly suffering from dsythmia along with PMDD. I credit therapy/counseling, my mother's presence, and faith & hope for getting me through. It was a tough time plagued with so many lows that I literally push myself to monitor my well-being very closely and seek healthy solutions due to fear of ever having to feel so hopeless again. Currently, I knowingly combat with dsythmia and PMDD. I would not wish the struggle of dsythmia or PMDD on my worst enemy. And believe me there are some *gran puntas* that have and continue to grace my path.
+I know firsthand what is feels like to be living a life but wishing for death. I recently emerged from a decade plus of life where I was progressively not able to realize my true potential because I was unknowingly suffering from dsythmia along with PMDD. I credit therapy/counseling, my mother's presence, and faith & hope for getting me through. It was a tough time plagued with so many lows that currently I push myself to monitor my well-being very closely as well as seek healthy solutions daily due to fear of ever having to feel so hopeless again. Currently, I knowingly combat with dsythmia and PMDD. I would not wish the struggle of dsythmia or PMDD on my worst enemy. And believe me there are some *gran puntas* that have and continue to grace my path.
 
 #### The Good/Better Season
 *I am in a good season.*
