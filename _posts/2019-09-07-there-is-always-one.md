@@ -1,10 +1,10 @@
 ---
 layout: post
-title:  "There's Always One"
+title:  "There is Always One"
 date:   2019-09-07 08:05:56 -0500
 categories: corporate
 ---
-There is always one person in a corporate setting who takes it upon his or herself to become the 'punk ass bitch' in your life on a daily basis.
+There is always at least one person in a corporate setting who takes it upon his or herself to become the 'punk ass bitch' in your life on a daily basis.
 
 My 'punk ass bitch' is the COO of my division. There is something extremely mentally unstable about a person who will go out of their way and waste time to avoid doing a requested task. It's a sad road for a managment "leader" who does not know how to lead without bias. In an effort to come across as a busy, authoratarian figure, this guy makes himself look stupid.
 
@@ -18,4 +18,3 @@ I am no longer playing fool games. I am no longer providing the benefit of the d
 
 But what this motherfucker doesn't understand (or maybe he is slowly learning). *I am not the one.* I am older and have been emotionally harmed by my share of men. I know the game. To me, he is just another **fuckboy**. I crush fuckboy ambition for fun.
 
- 
