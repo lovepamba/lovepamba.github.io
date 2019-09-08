@@ -4,6 +4,7 @@ title:  "I'm moving"
 date:   2019-08-31 13:15:24 -0500
 categories: personal
 ---
+*(work in progress)*
 It is time for me to leave this town. It is time for me to continue to create the life I want to live.
 
 I am currently wrapping my head around the fact that I am moving.
