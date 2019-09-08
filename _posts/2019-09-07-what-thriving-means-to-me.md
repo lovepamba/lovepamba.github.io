@@ -11,7 +11,7 @@ Right now, I am surviving, and it is a decent survival. There are elements of un
 In humanly fashion, I want more for my life because I want to realize my full potential. 
 
 ### Why I want to thrive
-You only live once.
+You only die once.
 Take calculated risks.
 Use fear as motivation.
 Bring about positive change.
