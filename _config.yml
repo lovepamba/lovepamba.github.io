@@ -21,10 +21,10 @@
 title: Love, Pamba  
 email: 
 description: >- # this means to ignore newlines until "baseurl:"
-  This space promotes personal development. The focus is to transcend your
-  current conditions and get from bad to better. Next, it is time to switch gears 
-  and learn how to become your best and THRIVE. Women currently combating 
-  depression, PMDD and anxiety are welcome to share in my journey.
+  This is my Internet outlet. I will rant. I will reason. My focus is to transcend my
+  current conditions and the better life I am living right now. But also, I aim to 
+  switch gears and learn how to become my best and THRIVE. Corporate or business women 
+  currently combating depression, PMDD and anxiety are welcome to share in my journey.
 baseurl: "" # the subpath of your site, e.g. /blog
 url: "" # the base hostname & protocol for your site, e.g. http://example.com
 twitter_username: 
