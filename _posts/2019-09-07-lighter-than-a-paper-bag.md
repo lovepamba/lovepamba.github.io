@@ -4,9 +4,7 @@ title:  "Lighter than a paper bag"
 date:   2019-09-08 15:53:42 -0500
 categories: society
 ---
-(*work in progress*)
-
-*You are not lighter than a paper bag so you probably wouldn't have made it...*
+*"You are not lighter than a paper bag so you probably wouldn't have made it..."*
 
 These were words spoken by my father directly to me. And for some strange reason he felt it ok to say these words to me - his daughter. He has said a lot of reckless shit to me over the years. 
 
