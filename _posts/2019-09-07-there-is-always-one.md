@@ -6,7 +6,7 @@ categories: corporate
 ---
 There is always at least one person in a corporate setting who takes it upon his or herself to become the 'punk ass bitch' in your life on a daily basis.
 
-My 'punk ass bitch' is the COO of my division. There is something extremely mentally unstable about a person who will go out of their way to waste time in hopes of avoiding doing a requested task. It's a sad road for a managment "leader" who does not know how to lead without bias. In an effort to come across as a busy, authoritarian figure, this guy makes himself look stupid.
+My 'punk ass bitch' is the COO of my division. There is something extremely mentally unstable about a person who will go out of their way to waste time in hopes of avoiding doing a requested task. It's a sad road for a managment "leader" who does not know how to lead without bias. In his efforts of trying to come across as a "super busy", authoritarian but "funny" figure, this guy makes himself look stupid.
 
 Instead of playing immature games, this fool needs to go balls to the wall and hit the ground running to smooth out operations. But he's a *dumbass fool*.
 
