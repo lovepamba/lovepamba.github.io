@@ -6,7 +6,7 @@ categories: personal
 ---
 *(work in progress)*
 
-It is time for me to continue to create the life I want to live. In the process, I am leaving this town. The cost of living is so reasonable here, but the prospects for higher paying jobs is not as reasonable.
+It is time for me to continue to create the life I want to live. In the process, I am leaving this town. The cost of living is so reasonable here, but the prospect for higher paying jobs is not as reasonable.
 
 I am currently wrapping my head around the fact that I am leaving - for a better job opportunity. And again let me note that I am moving for the chance to continue to create the life I want to live. 
 
