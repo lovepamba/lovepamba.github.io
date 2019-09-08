@@ -6,9 +6,9 @@ categories: personal
 ---
 *(work in progress)*
 
-It is time for me to continue to create the life I want to live. In the process, I am leaving this town. The cost of living is so reasonable here, but the prospects for a high paying job are not as reasonable.
+It is time for me to continue to create the life I want to live. In the process, I am leaving this town. The cost of living is so reasonable here, but the prospects for higher paying jobs is not as reasonable.
 
-I am currently wrapping my head around the fact that I am moving - for a better job opportunity. And again let me note that I am also leaving for the chance to continue to create the life I want to live. 
+I am currently wrapping my head around the fact that I am leaving - for a better job opportunity. And again let me note that I am moving for the chance to continue to create the life I want to live. 
 
 I am excited to be moving. The only fear/worry that sits with me is that I am going to be spending more than twice my current rent for this new place. But I have to keep reminding myself that upward mobility is a thing, and it is my time to level up.
 
