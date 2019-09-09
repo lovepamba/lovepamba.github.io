@@ -10,7 +10,7 @@ These were words spoken by my father directly to me. And for some strange reason
 
 My father puts white women on a pedestal. My father married a very light-skinned black woman for a reason. It was the 80's, and white was right while light-skin women reigned supreme in the community. Today light-skin women compete with "foreigns". 
 
-Procreating with the opposite of what makes you feel ashamed about yourself does not guarantee your progeny will be born bearing none of the features you find less desirable.
+Procreating with the opposite of what makes you feel ashamed about yourself does not guarantee your progeny will be born bearing all of the features you find more desirable.
 
 I've had several boyfriends question or ridicule my skin color, my hair texture, or my facial features. Well, they can thank my father for them all; his plan did not pan out.
 
