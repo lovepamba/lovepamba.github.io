@@ -2,7 +2,7 @@
 layout: post
 title:  "Lighter than a paper bag"
 date:   2019-09-08 15:53:42 -0500
-categories: society
+categories: personal
 ---
 *"You are not lighter than a paper bag so you probably wouldn't have made it..."*
 

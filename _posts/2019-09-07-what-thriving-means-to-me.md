@@ -17,6 +17,7 @@ Use fear as motivation.
 Bring about positive change.
 
 ### What is thriving?
+Having strong relationships with people.
 Taking calculated risks and winning.
 Knowing that you can readily generate income and be self-sufficient.
 Knowing how to monetize your life.
