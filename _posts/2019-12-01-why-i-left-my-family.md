@@ -12,10 +12,12 @@ The reality of future interactions with my immediate family can be found in the 
 - They admit no fault or participation in the matter. 
 - They "put it all" on me because they lack emotional maturity 
 - - (ie. the last text message from my father "MyName how's things going, haven't seen you in awhile. Would like for you to come down for Thanksgiving dinner". I am 99.9% certain that my mother forced my father to send that text.) 
-- - AND (ie. the last text message from my mother "Happy Thanksgiving MyName. Hope you have a good meal somewhere today. Wish you were here. Love you". It sounds oh so sweet but my mother has yet to send a message where she says something like - I am sorry that we had that argument. I know I played a part in our disagreement and I want to make things better.)
+- - AND (ie. the last text message from my mother "Happy Thanksgiving MyName. Hope you have a good meal somewhere today. Wish you were here. Love you". It sounds oh so sweet but my mother has yet to send a message where she says something like - I am sorry that we had that argument. **I know I played a part in our disagreement** and I want to make things better.)
 
-There is a message of "hoping all is well" and a message of "haven't seen you in awhile". However, there has been no message of "I am sorry we had that argument. I know I played a part in our disagreement, and I want to make things better". 
+There is a message of "hoping all is well" and a message of "haven't seen you in awhile". However, there has been no message of "**I know I played a part in our disagreement**". 
 
+
+At this point, it is better for us to not interact. We do not need a relationship where we interact heavily; that is not mentally good for me.
 
 
 
