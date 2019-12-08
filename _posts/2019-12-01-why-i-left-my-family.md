@@ -31,7 +31,7 @@ I recently had a dream that I was promoted at work, and my immediate family was 
 
 Living in fantasy can have me feeling bad about setting boundaries with people that continue to elicit feelings of hurt and pain. It can have me thinking that I am missing out on necessary relationships.
 
-The reality of the matter is that I am not missing out. I am being emotionally mature, and I am making the choice to protect my well-being. I accept that cutting off the fantasy is a bit painful. I will feel these emotions and keep moving forward. I must continue to parent and protect myself. If I do not do it, nobody else will.
+The reality of the matter is that I am not missing out. I am being emotionally mature, and I am making the choice to protect my well-being. I accept that cutting off fantasy is a bit painful. I will feel these emotions and keep moving forward. I must continue to parent and protect myself. If I do not do it, nobody else will.
 
 
 
