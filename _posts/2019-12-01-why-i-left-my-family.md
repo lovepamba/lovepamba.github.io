@@ -18,7 +18,7 @@ There is a message of "hoping all is well" and a message of "haven't seen you in
 
 At this point, it is better for us to not interact. We do not need a relationship where we interact heavily; that is not mentally good for me.
 
-### Connecting the Fantasy to Reality
+### Connecting Fantasy to Reality
 *In the past, I would make decisions to continue to interact with my immediate family based on fantasy. I carried a disconnect between fantasy and reality.*
 
 **Fantasy** is thoughts and emotions that make me want to reach out and try to resolve the issues I have with my immediate family without the assistance of a therapist.
