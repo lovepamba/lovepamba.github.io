@@ -21,16 +21,17 @@ At this point, it is better for us to not interact. We do not need a relationshi
 ### Connecting the Fantasy to Reality
 *In the past, I would make decisions to continue to interact with my immediate family based on fantasy. I carried a disconnect between fantasy and reality.*
 
-**Fantasy** are the thoughts and emotions that make me want to reach out and try to resolve the issues I have with my immediate family without the assistances of a therapist.
+**Fantasy** is thoughts and emotions that make me want to reach out and try to resolve the issues I have with my immediate family without the assistance of a therapist.
 
-**Reality** is the present moment. It is me fully understanding that my parents are still emotionally immature, and thus, they are not ready to resolve any issues without being a major detriment to my mental health.  
+**Reality** is the present moment. It is me alone and okay. It is me fully understanding that my parents are still emotionally immature, and thus not ready to resolve any issues without it being a major detriment to my mental health.  
 
-I feel bad at times because I am removing the chance for the fantasy to manifest. But the keyword in that last statement is fantasy. I had a dream last night that I was promoted at work, and my immediate family was there to celebrate me. That was a fantasy.
+I feel bad at times because I am removing the chance for the fantasy to manifest. But the keyword in that last statement is fantasy. 
 
+I had a dream last night that I was promoted at work, and my immediate family was there to celebrate me. That was fantasy.
 
-Living in my fantasy world had me feeling bad about setting boundaries with people that continue to elicit feelings of hurt and pain. It has me thinking that I am missing out on necessary relationships.
+Living in fantasy can have me feeling bad about setting boundaries with people that continue to elicit feelings of hurt and pain. It can have me thinking that I am missing out on necessary relationships.
 
-The reality of the matter is that I am not missing out. I am being emotionally mature, and I have made the choice to protect my well-being. I accept that cutting on the fantasy is a bit painful. I will feel these emotions and keep moving forward. I must continue to parent and protect myself. If I do not do it, nobody else will.
+The reality of the matter is that I am not missing out. I am being emotionally mature, and I am making the choice to protect my well-being. I accept that cutting off the fantasy is a bit painful. I will feel these emotions and keep moving forward. I must continue to parent and protect myself. If I do not do it, nobody else will.
 
 
 
