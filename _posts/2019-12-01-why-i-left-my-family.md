@@ -27,7 +27,7 @@ At this point, it is better for us to not interact. We do not need a relationshi
 
 I feel bad at times because I am removing the chance for the fantasy to manifest. But the keyword in that last statement is fantasy. 
 
-I had a dream last night that I was promoted at work, and my immediate family was there to celebrate me. That was fantasy.
+I recently had a dream that I was promoted at work, and my immediate family was there to celebrate me. That was fantasy.
 
 Living in fantasy can have me feeling bad about setting boundaries with people that continue to elicit feelings of hurt and pain. It can have me thinking that I am missing out on necessary relationships.
 
