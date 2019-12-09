@@ -17,4 +17,4 @@ I've had several boyfriends question or ridicule my skin color, my hair texture,
 
 Also, it is no surprise that the women these ex-boyfriends decided to wife are light-skin or not black. And if the woman happens to be darker, it is because she has "good hair". This is 2019.
 
-Men who "loved" me have nitpicked the hell out of my natural existence.
+Men who have "loved" me have nitpicked the hell out of my natural existence.
