@@ -9,7 +9,7 @@ I know firsthand what is feels like to be living a life but wishing for death. I
 #### The Good/Better Season
 *I am in a good season.*
 
-Generally now, I am a pretty happy and content person. I am aware of history and stay knowledgeable about current events. I have and continue to gain necessary skills for modern survival. I work a corporate job that provides a very decent salary (I say that from the viewpoint of being African-American and a woman). And at this point, I feel like I am being paid fairly. *I will let you know if that changes*.
+Generally now, I am a pretty happy and content person. I don't have periods where I completely shutdown overwhelmed by depression anymore. I cite history and stay knowledgeable about current events. I have and continue to gain necessary skills for modern survival. I work a corporate job that provides a very decent salary (I say that from the viewpoint of being African-American and a woman). And at this point, I feel like I am being paid fairly. *I will let you know if that changes*.
 
 I love to create. I am fascinated with coding. There are so many free or low-cost resources that allow us to build - possibly something great that resonates with others.
 
