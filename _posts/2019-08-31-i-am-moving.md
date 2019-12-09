@@ -13,7 +13,7 @@ I am currently wrapping my head around the fact that I am leaving - for a better
 I am excited to be moving. The only fear/worry that sits with me is that I am going to be spending more than twice my current rent for this new place. But I have to keep reminding myself that upward mobility is a thing, and it is my time to level up.
 
 ### Faith over fear
-I have been struggling with my faith since I started my new job. I can affirm that faith played a huge role in me getting this job. Everything leading up to the job offer lowkey seemed too good to be true, but then again upward mobility is still a thing. Now that I have the job, I am extremely afraid of losing it. This fear is all-consuming. Why am I so scared? (*not good enough thoughts rumble*) I know I'm scared but I have to keep my faith intact. For the most part, fear does not positively serve me.
+I have been struggling with my faith since I started my new job. I can affirm that faith played a huge role in me getting this job. Everything leading up to the job offer lowkey seemed too good to be true, but then again, upward mobility is still a thing. Now that I have the job, I am extremely afraid of losing it. This fear is all-consuming. Why am I so scared? (*not good enough thoughts rumble*) I know I'm scared but I have to keep my faith intact. For the most part, fear does not positively serve me.
 
 Reality is usually never as bad as the mind thinks it will be. I have to keep this in mind. 
 
