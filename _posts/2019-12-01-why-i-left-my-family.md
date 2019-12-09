@@ -25,13 +25,15 @@ At this point, it is better for us to not interact. We do not need a relationshi
 
 **Reality** is the present moment. It is me alone and okay. It is me fully understanding that my parents are still emotionally immature, and thus not ready to resolve any issues without it being a major detriment to my mental health.  
 
-I feel bad at times because I am removing the chance for the fantasy to manifest. But the keyword in that last statement is fantasy. 
+I feel bad at times because I am removing the chance for fantasy to manifest. But the keyword in that last statement is fantasy. 
 
 I recently had a dream that I was promoted at work, and my immediate family was there to celebrate me. That was fantasy.
 
 Living in fantasy can have me feeling bad about setting boundaries with people that continue to elicit feelings of hurt and pain. It can have me thinking that I am missing out on necessary relationships.
 
-The reality of the matter is that I am not missing out. I am being emotionally mature, and I am making the choice to protect my well-being. I accept that cutting off fantasy is a bit painful. I will feel these emotions and keep moving forward. I must continue to parent and protect myself. If I do not do it, nobody else will.
+The reality of the matter is that I am not missing out. I am being emotionally mature, and I am making the choice to protect my well-being. I accept that cutting off fantasy is a bit painful. I will feel these emotions and keep moving forward. 
+
+I must continue to parent and protect myself. If I do not do it, nobody else will.
 
 
 
