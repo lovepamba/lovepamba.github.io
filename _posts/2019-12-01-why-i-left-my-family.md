@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Why I Left My Family"
+title:  "Why I left my family"
 date:   2019-12-01 01:00:00 -0500
 categories: personal
 ---
