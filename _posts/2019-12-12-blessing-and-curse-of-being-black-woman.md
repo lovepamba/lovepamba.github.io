@@ -14,9 +14,9 @@ Blessings:
 - We are the most resilient people on the planet.
 - We are the most stylish people on the planet.
 
-Curse:
+Curses:
 - Everybody hates on us. 
 - We get watched and followed in stores.
 - We get our hair searched in airports.
 - We have to deal with creepy old men (mostly white) like all the damn time.
-- We are the lowest paid employees - read "Learn to be a bad bish and negotiate your worth".
+- We tend to be the lowest paid employees. [Create: "Learn to be a bad bish and negotiate your worth"].
