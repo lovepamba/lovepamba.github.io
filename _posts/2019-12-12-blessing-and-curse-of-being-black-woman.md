@@ -32,5 +32,5 @@ So much so, I avoid shopping at Walmart or any Walmart affiliated store in-perso
 
 I still have to get groceries so I suck it up and go to Kroger all the while wishing there were a black-owned grocery store nearby. *Shit, a black-owned everything nearby.* Is black-owned the solution though? 
 
-Hell, I recently was heavily watched by a black woman employee and a black man security guard at Kroger. I know my fellow black folk were likely playing the uninformed, miseducated pawns in the systemic struggle that continues to oppress our people. However, black-owned is one solution from an economic, *Ujamaa* point of view. That read mighty, mighty Hotep so let me follow with this *No Hotep*. 
+Hell, I recently was heavily watched by a black woman employee and a black man security guard at Kroger. I know my fellow black folk were likely playing the uninformed, miseducated pawns in the systemic struggle that continues to oppress our people. However, black-owned is one solution from an economic, *Ujamaa* point of view. That read like a mighty, morphing Hotep so let me follow with this *No Hotep*. 
 
