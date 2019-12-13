@@ -30,5 +30,7 @@ It is especially bad at Walmart and Kroger.
 
 So much so, I avoid shopping at Walmart or any Walmart affiliated store in-person. And I try to limit the amount of money I spend on Walmart.com on a monthly basis. 
 
-I still have to get groceries so I suck it up and go to Kroger all the while wishing there were a black-owned grocery store nearby. *Shit, a black-owned everything nearby.* Is black-owned the solution? I recently was heavily watched by a black woman employee and a black man security guard at Kroger. I know my fellow black folk were playing the uninformed pawns. Black-owned is the solution from an economic, *Ujammaa* point of view - no *Hotep*. 
+I still have to get groceries so I suck it up and go to Kroger all the while wishing there were a black-owned grocery store nearby. *Shit, a black-owned everything nearby.* Is black-owned the solution though? 
+
+Hell, I recently was heavily watched by a black woman employee and a black man security guard at Kroger. I know my fellow black folk were likely playing the uninformed, uneducated pawns in the systemic struggle that continues to oppress our people. However, black-owned is one solution from an economic, *Ujammaa* point of view. That read might Hotep so let me follow with *No Hotep*. 
 
