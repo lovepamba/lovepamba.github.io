@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "The blessing and curse of being a black woman series"
-date:   2019-12-01 01:00:00 -0500
+date:   2019-12-12 01:00:00 -0500
 categories: personal
 ---
 *(work in progress)*
