@@ -9,7 +9,7 @@ My parents are emotionally immature.
 I do not feel good interacting with them or my sibling. Many times before, during, and after an encounter with them I usually feel horrible. I literally have to take time to recalibrate and make sure my self-esteem is intact.
 
 Many of my thoughts concerning future interactions with them are rooted in fantasy.
-The reality of future interactions with my immediate family can be found in the way my mother and father are responding and not responding to me right now. 
+The reality of future interactions with my immediate family can be found in the way my family is contacting and not contacting me presently. 
 - They admit no fault or participation in our disagreement. **As a matter of fact, they do not mention the disagreement at all.** 
 - By not mentioning the disagreement, they "put it all" on me. This is another sign of a lack of emotional maturity. Examples of what they are saying when they contact me are: 
 	- The last text message from my father: "Pamba how's things going, haven't seen you in awhile. Would like for you to come down for Thanksgiving dinner". I am 99.9% certain that my mother forced my father to send that text. 
