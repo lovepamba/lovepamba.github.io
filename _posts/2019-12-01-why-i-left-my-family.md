@@ -6,7 +6,7 @@ categories: personal
 ---
 My parents are emotionally immature.
 
-I do not feel good interacting with them or my sibling. Many times before, during, and after an encounter with them I usually feel horrible interacting with them. I literally have to take time to recalibrate and make sure my self-esteem is intact.
+I do not feel good interacting with them or my sibling. Many times before, during, and after an encounter with them I usually feel horrible. I literally have to take time to recalibrate and make sure my self-esteem is intact.
 
 Many of my thoughts concerning future interactions with them are rooted in fantasy.
 The reality of future interactions with my immediate family can be found in the way my mother and father are responding and not responding to me right now. 
