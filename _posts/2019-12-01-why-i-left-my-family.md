@@ -6,7 +6,7 @@ categories: personal
 ---
 My parents are emotionally immature.
 
-I do not feel good interacting with them or my sibling. Many times before, during, and after an encounter with them I usually feel horrible after interacting with them. I literally have to take time to recalibrate and make sure my self-esteem is intact.
+I do not feel good interacting with them or my sibling. Many times before, during, and after an encounter with them I usually feel horrible interacting with them. I literally have to take time to recalibrate and make sure my self-esteem is intact.
 
 Many of my thoughts concerning future interactions with them are rooted in fantasy.
 The reality of future interactions with my immediate family can be found in the way my mother and father are responding and not responding to me right now. 
@@ -19,7 +19,7 @@ There is a message of "hoping all is well" and a message of "haven't seen you in
 
 At this point, it is better for us to not interact. We do not need a relationship where we interact heavily; that is not mentally good for me. 
 
-There is no reason for me to subject myself to people who do not take responsibility or acknowledge their actions. My parents and my siblig are these type of people.
+There is no reason for me to subject myself to people who do not take responsibility or acknowledge their negative actions. My parents and my sibling are these type of people.
 
 ### Connecting Fantasy to Reality
 *In the past, I would make decisions to continue to interact with my immediate family based on fantasy. I carried a disconnect between fantasy and reality.*
