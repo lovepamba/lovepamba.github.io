@@ -6,7 +6,6 @@ categories: personal
 ---
 *(work in progress)*
 
-There will be people in your life that do not want to see you succeed. These people may be your own family members. 
+There will be people in your life that do not want to see you succeed. These people may even be your own family members. 
 
-
-
+What I have come to learn, is that when I lived a few months without these people and their rotten opinions clouding my life, I lived. *I lived.* I continued to prosper. There were moments where I felt emotionally hurt, and even felt physical pain in my heart and stomach. ***But I lived.***
