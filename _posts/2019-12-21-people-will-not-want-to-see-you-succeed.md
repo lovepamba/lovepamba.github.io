@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Why some people do not want to you succeed?"
+title:  "Why some people do not want to see you succeed?"
 date:   2019-12-21 01:00:00 -0500
 categories: personal
 ---
