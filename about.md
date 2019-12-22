@@ -13,4 +13,4 @@ Generally now, I am a pretty happy and content person. I don't have periods wher
 
 I love to create. I am fascinated with coding. There are so many free or low-cost resources that allow us to build - possibly something great that resonates with others.
 
-This is my journey from **better to best**.  
+This is my journey from **surviving to thriving**.  
