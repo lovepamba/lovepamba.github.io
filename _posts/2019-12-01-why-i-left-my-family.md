@@ -24,7 +24,7 @@ There is no reason for me to subject myself to people who do not take responsibi
 ### Connecting Fantasy to Reality
 *In the past, I would make decisions to continue to interact with my immediate family based on fantasy. I carried a disconnect between fantasy and reality.*
 
-**Fantasy** is thoughts and emotions that make me want to reach out and try to resolve the issues I have with my immediate family without the assistance of a therapist.
+**Fantasy** are thoughts and emotions that make me want to reach out and try to resolve the issues I have with my immediate family without the assistance of a therapist.
 
 **Reality** is the present moment. It is me alone and okay. It is me fully understanding that my parents are still emotionally immature, and thus not ready to resolve any issues without it being a major detriment to my mental health.  
 
